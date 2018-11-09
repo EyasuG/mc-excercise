@@ -16,3 +16,7 @@ A Yankee walks into a bar in Alabama and orders a cosmopolitan. The bartender lo
 "I'm a taxidermist," says the man. The bartender looks bewildered, so the man explains, "I mount dead animals."
 
 The bartender stands back and hollers to the whole bar, "It's OK, boys! He's one of us!"
+
+A grasshopper walks into a bar, and the bartender says, "Hey, we have a drink named after you!"
+
+The grasshopper looks surprised and asks, "You have a drink named Steve?"
